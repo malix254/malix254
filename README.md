@@ -17,7 +17,7 @@ Hey there! I'm Griffin, a passionate developer exploring the infinite universe o
    - 📱 WhatsApp me: [WhatsApp](https://wa.me/254743269238)
    - 💬 Instagram: [@Hey_Stranger](https://www.instagram.com/Hey_Stranger)
    - 
-📫 Ready to embark on a quest together? Send your messages via magical owls (or just email me at [your_email@example.com](mailto:your_email@example.com))! Let's connect on LinkedIn and journey through the realms of technology!
+📫 Ready to embark on a quest together? Send your messages via magical owls (or just email me at [THE_GRIT](mailto:griffinskirimimbae@gmail.com))! Let's connect on LinkedIn and journey through the realms of technology!
 
 😄 Pronouns: He/Him/His
 
