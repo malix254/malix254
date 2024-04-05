@@ -15,7 +15,7 @@ Hey there! I'm Griffin, a passionate developer exploring the infinite universe o
 📱 **Contact Me:**
    - 📞 Call me: [tel:+254743269238](tel:+254743269238)
    - 📱 WhatsApp me: [WhatsApp](https://wa.me/254743269238)
-   - 💬 Instagram: [@Hey_Stranger](https://www.instagram.com/Hey_Stranger)
+   - 💬 Instagram: [@Hey_Stranger](https://www.instagram.com/hey_strange.r)
    - 
 📫 Ready to embark on a quest together? Send your messages via magical owls (or just email me at [THE_GRIT](mailto:griffinskirimimbae@gmail.com))! Let's connect on LinkedIn and journey through the realms of technology!
 
